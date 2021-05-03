@@ -14,7 +14,9 @@ always up for a challenge...
 
 You can reach me on
 LinkedIn - https://www.linkedin.com/in/amresh-jayakumar-b48371194/
+
 Instagram - www.instagram.com/amr3sh_6
+
 Email - amreshjayakumar6@gmai.com
 
 <!---
