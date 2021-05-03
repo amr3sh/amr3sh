@@ -1,6 +1,6 @@
 My name is Amresh Jayakumar, and I am currently an
 Undergraduate doing the Bachelors of Computer Science
-Degree at Informatics Intitute of Technology which is
+Degree at Informatics Institute of Technology which is
 affiliated with the University Of WestMinster.
 
 I am a part-time Photographer, Videographer, Artist
